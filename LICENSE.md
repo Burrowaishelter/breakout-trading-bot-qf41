@@ -1,4 +1,4 @@
-# 
+# momentum trading bot quantitative Algorithm | order-flow-analysis & volume-analysis is the best momentum trading bot, featuring order-flow-analysis and volume-analysis. Smart,
 
 
 
